@@ -1,0 +1,4 @@
+- hi, I’m @lolkalix
+- interested in coding / hosting sites
+- im currently learning .. idk much things?
+- How to reach me ...u cant
